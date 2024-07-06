@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data Analysis
 - 🌱 I’m currently learning Data Analysis
 - 💞️ I’m looking to collaborate on any project you are working on
-- 📫 How to reach me via whatsapp +234 816 241 3290 or X @kollycosy
+- 📫 How to reach me via whatsapp +234 815 990 9370 or X @kollycosy
 - 😄 Pronouns: he/him
 - ⚡ Fun fact:  I'm a team player
 
